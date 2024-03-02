@@ -1,6 +1,6 @@
 ### Hi there 👋
 # 💫 About Me:
-<br>🔭 Currently immersed in crafting cutting-edge AI systems poised to make a lasting impact on the world.<br><br>👯 Eager to collaborate on innovative AI projects that push the boundaries of technology.<br><br>🤝 Actively seeking an end-of-study internship within a dynamic startup environment to apply and enhance my skills.<br><br>🌱 Engaged in a continuous learning journey, particularly focused on mastering the latest advancements in AI, machine learning, and data science.<br><br>💬 Ask me about my journey co-founding Failing startups.<br><br>⚡ Fun fact: With 8 years in the gym sculpting both mind and body, I also bring my voice-over artistry into play, narrating stories with a vocal finesse.<br><br><br><br><br><br>
+<br>🔭 Currently immersed in crafting cutting-edge AI systems poised to make a lasting impact on the world.<br><br>👯 Eager to collaborate on innovative AI projects that push the boundaries of technology.<br><br>🤝 Actively seeking to network with people in the industry.<br><br>🌱 Engaged in a continuous learning journey, particularly focused on mastering the latest advancements in AI, machine learning, and data science.<br><br>💬 Ask me about my journey co-founding Failing startups.<br><br>⚡ Fun fact: With 8 years in the gym sculpting both mind and body, I also bring my voice-over artistry into play, narrating stories with a vocal finesse.<br><br><br><br><br><br>
 
 
 ## 🌐 Socials:
